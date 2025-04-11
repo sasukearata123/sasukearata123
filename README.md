@@ -2,7 +2,7 @@
 - 👀 I’m a tech entrepreneur 
 - 🌱 I’m currently learning shit🤣
 - 💞️ I’m looking to collaborate on ideas 
-- 📫 mail me : amartyapandeynew8@gmail.com
+- 📫 mail me : shisjs8@gmail.com
 - ⚡ Fun fact: chess is solved for 7 peices on board known as tablebase
 
 <!---
